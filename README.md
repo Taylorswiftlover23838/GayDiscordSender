@@ -1,4 +1,6 @@
 U need to join the hood irony central server
 
-https://discord.gg/u2qxYyGM
+## Discord Server
+
+`https://discord.gg/u2qxYyGM`
 
