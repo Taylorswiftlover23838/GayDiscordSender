@@ -6,7 +6,7 @@
 
 ## Invite Link
 
-`https://discord.gg/bhDM36uX`(Probably expired)
+`https://discord.gg/bhDM36uX`
 
 ## Usage
 
