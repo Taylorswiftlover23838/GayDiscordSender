@@ -2,7 +2,11 @@
 
 ## Discord Server
 
-`https://discord.gg/u2qxYyGM`
+`You need to join the Hood Irony Server for this to work`
+
+## Invite Link
+
+`https://discord.gg/bhDM36uX`(Probably expired)
 
 ## Usage
 
